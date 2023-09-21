@@ -1,3 +1,3 @@
 # Yin-Website-v3
 
-> URL - yinnnnn.xyz
+URL - yinnnnn.xyz
